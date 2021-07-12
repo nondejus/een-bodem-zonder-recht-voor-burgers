@@ -1,1 +1,0 @@
-# een-bodem-zonder-recht-voor-burgers
